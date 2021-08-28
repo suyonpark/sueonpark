@@ -3,12 +3,12 @@
 ### Right now, I'm...
 
 🌱 a B.Sc Service Design Engineering, B.A.Sc Art & Technology student. <br />
-😍 building a bridge between an art and a programming. <br />
-📫 How to reach me: me@astrydpark.me (palindromic, huh?)
+😍 building a rainbow bridge(like Bifrost) between an art and a programming. <br />
+📫 How to reach me: me@astrydpark.com
 
 ### What I'm focusing on 💻📝🎨🎸
 
-Builds my portfolio webpage, writes a SF novel, ands practise comic book style drawing.<br />
+**working & studying as a research intern at Yonsei University, writing my SF novel, and drawing a graphic novel.<br />
 
 ### My Skills ✨
 <p align='center'>
