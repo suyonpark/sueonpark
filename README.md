@@ -8,7 +8,7 @@
 
 ### What I'm focusing on 💻📝🎨🎸
 
-**working & studying as a research intern at Yonsei University, writing my SF novel, and drawing a graphic novel.<br />
+**working & studying as a research intern at Yonsei University**, writing my SF novel, and drawing a graphic novel.<br />
 
 ### My Skills ✨
 <p align='center'>
